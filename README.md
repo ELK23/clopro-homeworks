@@ -8,7 +8,7 @@
 
 ![image](https://github.com/user-attachments/assets/024ffc6e-e96b-45a6-8ba2-8025944f8c1d)
 
-
+## Задание 2
 ![image](https://github.com/user-attachments/assets/6491c4d4-774f-4b2e-bd75-9211963c829d)
 
 ![image](https://github.com/user-attachments/assets/86855f6d-ee07-458b-a486-17153c767568)
